@@ -27,4 +27,4 @@ I’m the mind behind **Nexa Quark Private Limited**, where we blend technology 
 I’m always open to new ideas, collaborations, and exciting projects. Reach out, and let’s create something amazing together!
 
 - **Email**: digitalnexaorg@gmail.com
-- **Instagram**: [@sandey_seeker](https://www.instagram.com/sandey_seeker)
+- **Instagram**: [@sandey__seeker](https://www.instagram.com/sandey__seeker)
